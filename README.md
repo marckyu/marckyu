@@ -2,7 +2,7 @@
 
 ### AI-Augmented Full-Stack & Game Developer/ Student
 
-Welcome sa github profile ko ya🙂‍↕️🤝🏻
+Welcome sa github profile ko ya🤝🏻
 soo-
 
 - 🔭 I’m currently working on my personal portfolio.(actually planning palang iyan daming gawain eh).
