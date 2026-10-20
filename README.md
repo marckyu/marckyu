@@ -1,6 +1,6 @@
 # Hi, I'm John Marc! 👋
 
-### Web Developer / Student
+### Ai Driven Product Engineer / Student
 
 Welcome to my GitHub! I love building things for the web.
 
