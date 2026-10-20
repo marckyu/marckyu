@@ -1,10 +1,12 @@
-# Hai, stalk pa more ha! 🦖
+# Hai ya, stalk pa more ha! 🦖
 
 ### AI-Augmented Full-Stack & Game Developer/ Student
 
-Welcome to my GitHub! I love building things for the web.
+Welcome sa github profile ko ya🙂‍↕️🤝🏻
+soo-
 
-- 🔭 I’m currently working on my personal portfolio.
-- 🌱 I’m currently learning: Html, Css, JavaScript, Java, Python, C++ And C#
+🔭 I’m currently working on my personal portfolio.(actually planning palang iyan daming gawain eh)
+ 🌱 I’m currently learning: Html, Css, JavaScript, Java, Python, C++ And C#
+(medyo madami pero kakayanin🦖🦖)
 ---
 
