@@ -8,4 +8,3 @@ Welcome to my GitHub! I love building things for the web.
 - 🌱 I’m currently learning: Html, Css, JavaScript, Java, Python And C++
 ---
 
-### 🛠 Tech Stack
