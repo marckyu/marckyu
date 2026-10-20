@@ -1,6 +1,6 @@
-# Hi, I'm John Marc! 👋
+# Hai, stalk pa more ha! 🦖
 
-### Ai Driven Product Engineer / Student
+### AI-Augmented Full-Stack & Game Developer/ Student
 
 Welcome to my GitHub! I love building things for the web.
 
