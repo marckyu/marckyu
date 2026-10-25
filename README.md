@@ -1,4 +1,4 @@
-# Hai ya, stalk pa more ha! 🦖
+# Hai ya, Tamang Stalk Lang Ah 🦖
 
 ### AI-Augmented Full-Stack & Game Developer/ Student
 
