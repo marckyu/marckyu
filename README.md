@@ -1,4 +1,4 @@
-# Hai ya, Tamang Stalk Lang Ah 🦖
+# Hai ya, Ayan nahanap mo pa talaga yung GitHub ko ha 🦖
 
 ### AI-Augmented Full-Stack & Game Developer/ Student
 
