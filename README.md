@@ -1,4 +1,4 @@
-# Hai ya, Ayan nahanap mo pa talaga yung GitHub ko ha 🦖
+# AAAAAAAAAAAAAA 🦖
 
 ### AI-Augmented Full-Stack & Game Developer/ Student
 
