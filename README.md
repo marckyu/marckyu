@@ -5,7 +5,7 @@
 Welcome sa github profile ko ya🤝🏻
 soo-
 
-- 🔭 I’m currently working on my personal portfolio.(actually planning palang iyan daming gawain eh).
+- 🔭 I’m currently working on my personal portfolio.(actually planning palang iyan daming gawain sa buhay ih).
  
  - 🌱 I’m currently learning: Html, Css, JavaScript, Java, Python, C++ And C#
 (medyo madami pero kakayanin🦖🦖).
