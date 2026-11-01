@@ -1,6 +1,6 @@
 # Welcome pooo!🦖
 
-### AI-Augmented Full Stack & Game Developer/ Student
+### AI-Augmented Full Stack & Game Developer/ IT Student
 
 hi Welcome sa github profile ko ya🤝🏻
 soo-
