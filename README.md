@@ -1,4 +1,4 @@
-#🦖
+🦖
 
 ### AI-Augmented Full Stack & Game Developer/ Student
 
