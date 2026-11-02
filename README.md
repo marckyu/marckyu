@@ -2,7 +2,8 @@
 
 ### AI-Augmented Web Developer & AI-Augmented Game Developer/ IT Student
 
-hi Welcome sa github profile ko ya🤝🏻
+hi Welcome sa github ko ya🤝🏻
+
 soo-
 
 - 🔭 I’m currently working on my personal portfolio.(actually planning palang iyan daming gawain sa buhay ih).
